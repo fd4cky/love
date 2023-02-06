@@ -1,4 +1,4 @@
-# fd4cky.github.io-love
+# love
 heart for my love 💗
 is page for my girl 💗
 is page for 14 february 💗
